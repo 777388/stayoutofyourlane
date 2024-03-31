@@ -18,3 +18,5 @@ REal interesting that time I was working for the feds and they had me stay in th
 So listen you maggot filled dick fucking feds playing with fingerprinting so that you can just say repudiation on these words doesn't work. I'm gonna kill your family, I'm gonna kill your kids, I'm gonna kill your country. Not mine/
 
 The key to killing a fed, and I know keys are just shit these days, 202, Stateless, Choronzon
+
+If you're reading this woodward, I want you to know what I told your family members with cleft lip. Make like a jew and burn.
