@@ -14,3 +14,5 @@ Some people in modesto want to know. What happened to federal support in Califor
 Also why did education in California get sold to China? Don't you know they eat the girls? sometimes I get advertisements of guys showcasing their "Willing" victims to being eaten on Instagram.
 
 REal interesting that time I was working for the feds and they had me stay in the projects with a drummer I used to play with's son. Right after he died, paralysis, a disease meant to infect drummers. Ritualized in Set versus Osiris, djed being the spine of osiris. Slept right on the couches he was dying on.
+
+So listen you maggot filled dick fucking feds playing with fingerprinting so that you can just say repudiation on these words doesn't work. I'm gonna kill your family, I'm gonna kill your kids, I'm gonna kill your country. Not mine/
