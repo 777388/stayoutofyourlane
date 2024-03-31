@@ -1,0 +1,1 @@
+Demon crazy => Democracy
