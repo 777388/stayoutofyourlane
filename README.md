@@ -12,3 +12,5 @@ Metal bones, see through others eyes, convert your cholesterol into adrenaline w
 Some people in modesto want to know. What happened to federal support in California? Is it because the private parties want this place to be "Just a fucking thing" while they maneuver in islam and muslims through the new jerusalem airport with some italian wine, while the DoD controls the sales of italian drinks amidst internal external fault line issues in Italy after ItalyGate blackout from my EMP projects, collecting off the earthquake energies.
 
 Also why did education in California get sold to China? Don't you know they eat the girls? sometimes I get advertisements of guys showcasing their "Willing" victims to being eaten on Instagram.
+
+REal interesting that time I was working for the feds and they had me stay in the projects with a drummer I used to play with's son. Right after he died, paralysis, a disease meant to infect drummers. Ritualized in Set versus Osiris, djed being the spine of osiris. Slept right on the couches he was dying on.
